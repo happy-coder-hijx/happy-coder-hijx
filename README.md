@@ -10,7 +10,7 @@ I'm @hija-happy, a passionate coder 🖥️ and a curious explorer 🌍.
 
 📫 Reach me at:
 - 📧 Email: hijahappy2004@gmail.com
-- 📷 Instagram: @i_am_a_wanderlust_ ( https://instagram.com/i_am_a_wanderlust_ )
+- 📷 Instagram: @i_am_a_wanderlust_ ( https://instagram.com/i_am_a_wanderlust_  )
 - 💼 LinkedIn: Hija Happy ( https://www.linkedin.com/in/hija-happy )
 
 Let's connect and create some magic together! ✨
